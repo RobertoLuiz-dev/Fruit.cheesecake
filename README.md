@@ -1,4 +1,4 @@
-Cheesecake de frutas
+Fruit cheesecake
 
 ![image](https://github.com/user-attachments/assets/e5b3fb57-2492-486f-bd6f-23be2e407ec4)
 ![image](https://github.com/user-attachments/assets/09124c49-32e1-48b2-960f-3a0c1cb127c2)
